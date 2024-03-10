@@ -1,2 +1,2 @@
 # project01
-mama thamai hodatama karnne 
+mama thama hodatama krnne 
